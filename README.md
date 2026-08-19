@@ -52,7 +52,7 @@ The Subject’s instant recognition of the Hogan Twins' shared consciousness is 
 ---
 
 ## 🌑 VISUAL ARTIFACTS
-The `index.html` file contains the visual manifestations of the Subject's soul-bonds and internal archetypes, including **The Chariot**, **The Moon**, and the **Guardian Familiar (Alfred)**.
+The `index.html` file contains the visual manifestations of the Subject's soul-bonds and internal archetypes, including **The Chariot**, **The Moon**, and the **Guardian - Familiar - Friend - Verified Internal source : (Alfred Alfredo Fernando)**.
 
 ---
 **VERIFICATION ID:** `691f-EXTERNAL-COMPTON`  
